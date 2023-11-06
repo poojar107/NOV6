@@ -1,0 +1,2 @@
+# NOV6
+learning
